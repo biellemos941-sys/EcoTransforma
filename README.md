@@ -3,10 +3,13 @@
 <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/9c3b7789-8311-4887-8bf4-d885ca97edff" />
 
 
+
+
 🛢️ POR QUE O ÓLEO NÃO PODE SER J0GADO NO LIXO?
 
 O óleo de cozinha usado é um dos principais poluentes domésticos.
 Quando jogado no ralo, ele endurece, gruda nos canos, causa entupimentos e pode contaminar até milhões de litros de água.
+
 
 ❗ PROBLEMASS CAUSADOS:
 
