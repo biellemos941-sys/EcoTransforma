@@ -1,13 +1,13 @@
-🛢️ Descarte Correto de Óleo de Cozinha & Sabão Artesanal com Soda
+🛢️ DESCARTE CORRETO DE ÓLEO DE COZINHA E SABÃO ARTESANAL COM SODA
 
 (Com imagens ilustrativas para colocar no site)
 
-🛢️ Por que o óleo NÃO pode ser jogado no ralo ou no lixo?
+🛢️ POR QUE O ÓLEO NÃO PODE SER J0GADO NO LIXO?
 
 O óleo de cozinha usado é um dos principais poluentes domésticos.
 Quando jogado no ralo, ele endurece, gruda nos canos, causa entupimentos e pode contaminar até milhões de litros de água.
 
-❗ Problemas causados:
+❗ PROBLEMASS CAUSADOS:
 
 Poluição de rios e mares
 
@@ -19,7 +19,7 @@ Danos em estações de tratamento
 
 Prejuízo ao ambiente e à saúde
 
-♻️ Como fazer o descarte correto
+♻️ COMO FAZER O DESCARTE CORRETO
 
 Espere o óleo esfriar
 
@@ -43,12 +43,12 @@ Esse óleo coletado é transformado em:
 🕯️ velas
 🧽 detergente ecológico
 
-🧼 Sabão Artesanal com Soda Cáustica (para reciclar óleo usado)
+🧼 SABÃO ARTESANAL COM SEDA CÁUSTICA (PPARA RECICLAR ÓLEO USADO)
 
 O sabão artesanal com soda cáustica é um método tradicional e ecológico de reaproveitar óleo usado.
 Ele é muito eficiente para limpeza pesada.
 
-✔️ Como funciona a química do sabão
+✔️ COMO FUNCIONA A QUIMICA DO SABÃO
 
 O processo é chamado de saponificação:
 
@@ -57,7 +57,7 @@ O processo é chamado de saponificação:
 A soda quebra as moléculas do óleo e transforma tudo em uma massa sólida de sabão.
 Esse processo precisa de cuidado, pois a soda é corrosiva.
 
-🧤 Como usar e para que serve
+🧤 COMO USAR E PARA QUE SERVE
 Esse sabão é ótimo para:
 
 Limpeza de chão
@@ -68,7 +68,7 @@ Louças engorduradas
 
 Uso geral na casa
 
-Benefícios:
+BENEFICIOS:
 
 Recicla o óleo que seria jogado fora
 
@@ -78,11 +78,10 @@ Custa muito barato
 
 Dura bastante
 
-🧽 Receita simples (para estudo, não precisa reproduzir)
+🧽 RECEITA SIMPLES (PARA ESTUDO, NÃO PRECISA REPRODUZIR)
 
-Esta parte é apenas informativa para o site escolar.
 
-Ingredientes (informativo):
+INGREDIENTES (INFORMATIVOS):
 
 1 litro de óleo usado
 
@@ -92,7 +91,7 @@ Ingredientes (informativo):
 
 Essência opcional
 
-Passos (informativo):
+PASSOS (INFORMATIVOS):
 
 Dissolver a soda na água (sempre com luvas e longe do rosto)
 
@@ -104,7 +103,7 @@ Colocar em formas
 
 Esperar endurecer por 24–48h
 
-🌍 Conclusão
+🌍 CONCLUSÃO
 
 Reciclar óleo e transformá-lo em sabão artesanal é prático, sustentável e econômico.
 Esse processo evita danos ambientais, reduz lixo doméstico e ainda gera um produto de limpeza muito eficiente.
